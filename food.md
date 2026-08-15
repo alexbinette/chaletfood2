@@ -17,7 +17,7 @@
 
 **DÉJEUNER - pour les parresseux ET les déguédinés**
 
-> rapide pour ceux qui seront on the go  et 
+> rapide pour ceux qui seront on the go 🏃 
 
 1. pancakes rapide aux baies, avoine et yogourt grec
 2. oeufs 
@@ -33,7 +33,7 @@
 3. carottes marinées, concombre, coriandre
 4. sauce aux arachides, vermicelles et nouilles frites
 
-**SOUPER - throwback!!! pizza time **
+**SOUPER - throwback!!! pizza time 🍕**
 
 > style detroit un brin, dans de grandes tôles 
 
