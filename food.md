@@ -48,4 +48,4 @@
 
 1. oeufs bénédictines saumon avocat
 2. salade fruits frais sur le side (cantaloup+estragon?)
-3. café et départ 
+3. café et départ 🕊️
