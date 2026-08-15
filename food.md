@@ -1,68 +1,51 @@
-# bouffe - île aux coudres 🍗🥗😋
+# bouffe -  les éboulements 🍗🥗😋
 ---
-## vendredi, 13 juin 
-> vu qu'on va arriver à toutes sortes d'heures avec toutes sortes d'appétit, je propose qu'on picore avec pain/charcuteries/fromages/olives/cocktails, avec un late night snack pour les affamés
+## vendredi, 21 août 
 
-**SOUPER - Charcoochie board, tapas chaud**
+**SOUPER - it's corn. it has the juice.**
 
-1. Baguette
-2. Pâtés
-3. Charcuteries
-4. Olives et marinades
-5. Fromages
-6. Tapas chaud (recette bibi) ou genre des spanakopitas surgelés
-7. Late night snack (bibi encore)
+> pique-assiette tranquille vu qu'on risque d'arriver au compte-goutte
 
----
-## samedi, 14 juin
-
-**DÉJEUNER - Déjeuner des champions**
-
-1. Pancakes au babeurre et baies
-2. Salade de fruits
-3. Café (à concerter, @Maxence et @Laetitia)
-4. Oeufs et Bacon (au besoin)
-
-**DÎNER - Léger, simple et frais**
-
-1. Salade César au poulet grillé
-2. Premier cocktail de la journée, possiblement
-
-**SOUPER - Un ti peu plus décadent quand même**
-
-1. Salade melon d'eau, feta et menthe
-2. Tostadas, ceviche de crevettes et salsa à la mangue
-3. Plat de pâtes! À déterminer, je vous tiens au courant
+1. tostadas frais
+2. hummus, trempette aux artichauts et baba gannouj
+3. maïs style elote
+4. salade extrêmement garrochée aux herbes et sumac
+5. frites surgelées + autres dépanneurs
 
 ---
-## RACE DAY - dimanche, 15 juin
+## samedi, 22 août
 
-**DÉJEUNER - *CARBO* loadés comme des guns**
+**DÉJEUNER - pour les parresseux ET les déguédinés**
 
-1. Toast, Gruau, miel et beurre de pine
-2. Une banane 🍌
-3. Caféine
-4. La dureté du mental
+> rapide pour ceux qui seront on the go  et 
 
-**DÎNER - Possiblement fourni, possiblement cantine, peut-être restes**
-> Je sais pas trop à quoi m'attendre comme niveau d'appétit, anyways c'est juste un trou à boucher en attendant le souper.
+1. pancakes rapide aux baies, avoine et yogourt grec
+2. oeufs 
+3. toasts
+4. viande, bines, continental quoi
 
-**SOUPER - BBQ + Célébrations 🍾**
+**DÎNER - salade satay de vermicelles froids**
 
-1. Poulet grillé au charbon, style péruvien
-2. Maïs style mexican (Elotes), sauce fumée
-3. Hot-dogs
-4. On peut faire une salade de patates, ou on peut juste boire comme des trous
+> style Mandy's, fraîche et possiblement dopée de crevettes
 
-*bibi s'éclipse ici*
+1. chou fumé au sésame
+2. crevettes grillées, ail et sauce thaï
+3. carottes marinées, concombre, coriandre
+4. sauce aux arachides, vermicelles et nouilles frites
+
+**SOUPER - throwback!!! pizza time **
+
+> style detroit un brin, dans de grandes tôles 
+
+1. retour chez dan (charcu, peperoncini, origan)
+2. la bicoise (boeuf haché, champignons)
+3. végé (artichauts, tomates séchées)
 
 ---
-## lundi, 16 juin
+## dimanche, 23 août
 
-DÉJEUNER - 🫡
-1. Gestion de chalet
-2. Gestion de hangover
-3. Toasts, gruau, ce qui reste
-4. Café pour la route
+**DÉJEUNER - béné, se laisser sur la meilleure des notes**
 
-
+1. oeufs bénédictines saumon avocat
+2. salade fruits frais sur le side (cantaloup+estragon?)
+3. café et départ 
