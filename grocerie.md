@@ -32,6 +32,8 @@
 - 3 x muffins anglais @ 2$/6un
 - 1 x tortillas de maïs
 
+- 1x ice cweam vanille (demande de jess!!)
+
 - 2 x allens cheap-ass jus de pomme @ 1$/1L
 - 1 x bines dans le sirop clark @ 1$/398mL
 - 2 x pâte de tomate 1$/156mL
