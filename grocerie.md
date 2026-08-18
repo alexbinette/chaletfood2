@@ -45,7 +45,7 @@
 - 1 x cretons norel @ 3$/150g
 - 1 x tranches de pepperoni @ 6.49$/375g
 
-- 1 xestragon frais @ 1.99$/un
+- 1 x estragon frais @ 1.99$/un
 - 1 x chou vert @ .49$/lb
 - 2 x tomates cerises @ 1.99$/541mL
 
