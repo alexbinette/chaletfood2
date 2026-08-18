@@ -1,58 +1,59 @@
 # épicerie -  les éboulements 🍗🥗😋
 
+> Estimation de quantités pour 14 personnes
 
 ## circulaires jusqu'au mercredi 19 août
 
 ### maxi 
-- beurre salé @ 4.98$/lb
-- ❄️ soucisses cheap déjeuner lafleur @ 6.88$/kg
+- 1 x beurre salé @ 4.98$/lb
+- ❄️ 2 x soucisses cheap déjeuner lafleur @ 6.88$/kg
 
-- avocats @ .88$/un 
-- aubergine @ 1.88$/lb
-- fraises du québec @ 2.88$/1L
+- 8 x avocats @ .88$/un 
+- 2 x aubergine @ 1.88$/lb
+- 3 x fraises du québec @ 2.88$/1L
 
 ### mon épicier
-- ❄️ steak haché mi-maigre @ 4.99$/lb
-- petit québec pizza mozzarella @ 5.97$/500g
+- ❄️ 1 x steak haché mi-maigre @ 4.99$/lb
+- 2 x petit québec pizza mozzarella @ 5.97$/500g
 
 ## circulaires dès jeudi 20 août
 
 ### maxi 
-- ❄️ poulet entier @ 2.50$/lb
-- mangue rouge @ 1$
-- cantaloup @ 3$
-- coriandre fraîche @ 1.99$/un
-- maîs @ .33$/un
-- concombre des champs @ 1$
+- ❄️ 2 x poulet entier @ 2.50$/lb
+- 4 x mangue rouge @ 1$
+- 2 x cantaloup @ 3$
+- 3 x coriandre fraîche @ 1.99$/un
+- ~20 x maïs @ .33$/un
+- 4 x concombre des champs @ 1$
 
-- hummus fontaine santé @ 5.50$/lb
-- oeufs
+- 1 x hummus fontaine santé @ 5.50$/lb
+- 48 x oeufs
 
-- muffins anglais @ 2$/6un
-- tortillas de maïs
+- 3 x muffins anglais @ 2$/6un
+- 1 x tortillas de maïs
 
-- allens cheap-ass jus de pomme @ 1$/1L
-- bines dans le sirop clark @ 1$/398mL
-- pâte de tomate 1$/156mL
+- 2 x allens cheap-ass jus de pomme @ 1$/1L
+- 1 x bines dans le sirop clark @ 1$/398mL
+- 2 x pâte de tomate 1$/156mL
 
-- coeurs d'artichauts
-- tomates séchées
+- 1 x coeurs d'artichauts
+- 1 x tomates séchées
 
 
 ### mon épicier 
-- bacon selection @ 4.88$/lb
-- cretons norel @ 3$/150g
-- tranches de pepperoni @ 6.49$/375g
+- 3 x bacon selection @ 4.88$/lb
+- 1 x cretons norel @ 3$/150g
+- 1 x tranches de pepperoni @ 6.49$/375g
 
-- estragon frais @ 1.99$/un
-- chou vert @ .49$/lb
-- tomates cerises @ 1.99$/541mL
+- 1 xestragon frais @ 1.99$/un
+- 1 x chou vert @ .49$/lb
+- 2 x tomates cerises @ 1.99$/541mL
 
-- pain sandwich cheap @ 2.89$
+- 2 x pain sandwich cheap @ 2.89$
 
-- yogourt astro nature @ 3.27$/750g
+- 1 x yogourt astro nature @ 3.27$/750g
 
-- olives manzanilla @ 2.99$/375mL
+- 1 x olives manzanilla @ 2.99$/375mL
 
 
 ---
