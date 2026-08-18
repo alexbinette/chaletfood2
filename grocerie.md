@@ -53,8 +53,6 @@
 - yogourt astro nature @ 3.27/750g
 
 - olives manzanilla @ 2.99$/375mL
-- pattes d'ours @ 1.88$
-- cheez-it @ 1.99$
 
 
 ---
