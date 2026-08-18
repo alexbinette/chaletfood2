@@ -50,7 +50,7 @@
 
 - pain sandwich cheap @ 2.89$
 
-- yogourt astro nature @ 3.27/750g
+- yogourt astro nature @ 3.27$/750g
 
 - olives manzanilla @ 2.99$/375mL
 
