@@ -5,20 +5,20 @@
 
 ### maxi 
 - beurre salé @ 4.98$/lb
--  soucisses cheap déjeuner lafleur @ 6.88$/kg
+- ❄️ soucisses cheap déjeuner lafleur @ 6.88$/kg
 
 - avocats @ .88$/un 
 - aubergine @ 1.88$/lb
 - fraises du québec @ 2.88$/1L
 
 ### mon épicier
--  steak haché mi-maigre @ 4.99$/lb
+- ❄️ steak haché mi-maigre @ 4.99$/lb
 - petit québec pizza mozzarella @ 5.97$/500g
 
 ## circulaires dès jeudi 20 août
 
 ### maxi 
--  poulet entier @ 2.50$/lb
+- ❄️ poulet entier @ 2.50$/lb
 - mangue rouge @ 1$
 - cantaloup @ 3$
 - coriandre fraîche @ 1.99$/un
@@ -58,6 +58,8 @@
 
 
 ---
+
+
 ## mise à jour des repas
 
 ### vendredi, 21 août 
@@ -68,7 +70,6 @@ SOUPER
 3. maïs style elote
 4. salade extrêmement garrochée aux herbes et sumac, poulet grillé
 
----
 ### samedi, 22 août
 
 DÉJEUNER 
@@ -88,7 +89,6 @@ SOUPER
 2. la bicoise (boeuf haché, peperoncini, )
 3. végé (artichauts, tomates séchées)
 
----
 ### dimanche, 23 août
 
 DÉJEUNER 
