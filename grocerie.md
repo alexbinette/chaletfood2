@@ -90,6 +90,6 @@ SOUPER
 ### dimanche, 23 août
 
 DÉJEUNER 
-1. oeufs bénédictines bacon
+1. oeufs bénédictines bacon avocat
 2. salade fruits frais sur le side (cantaloup+estragon?)
 3. café et départ 🕊️
