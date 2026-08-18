@@ -86,7 +86,7 @@ DÎNER
 
 SOUPER 
 1. retour chez dan (charcu, champignons, origan)
-2. la bicoise (boeuf haché, peperoncini, )
+2. la bicoise (boeuf haché, peperoncini)
 3. végé (artichauts, tomates séchées)
 
 ### dimanche, 23 août
